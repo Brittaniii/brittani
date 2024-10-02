@@ -1,5 +1,5 @@
 # Hola 💬
-https://github.com/Brittaniii/brittani/issues/1#issue-2562319498
+![pmi_logo_ogshare](https://github.com/user-attachments/assets/39cd250e-0a34-4827-b088-2f69bdddb825)
 
 Soy igeniera de sistemas apasionada por su carrera, me gusta crear proyectos nuevos para mejorar a la comunidad.
 
